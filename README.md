@@ -1,1 +1,2 @@
 # ZONALS2024
+Dr. Abdul Kalam Sports Fest is a three days event in which various colleges affiliated to Dr. APJ Abdul Kalam Technical University Lucknow, will participate in various events. The events scheduled this year are Athletics, Badminton, Basketball, Chess, Kabaddi, Kho-Kho, Table Tennis, Volleyball. Sports help in the development of mental health and physical fitness of an individual. Games improve various skills, infuse team spirit, sportsmanship & confidence that are helpful for all round developent of students.
